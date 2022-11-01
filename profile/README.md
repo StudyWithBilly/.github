@@ -1,4 +1,4 @@
-## Hi there 👋 Welcome to Study With Billy
+## Hi there 👋 Welcome.
 
 ### Simply Focus and Precise Efficiency.
 
